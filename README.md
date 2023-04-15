@@ -1,0 +1,2 @@
+# extension-disable-2.0-ver106-
+⚠️WARNING⚠️: I AM NOT RESPONSIBLE FOR YOUR ACTIONS.
